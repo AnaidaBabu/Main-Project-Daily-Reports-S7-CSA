@@ -5,6 +5,8 @@ We selected one of the topic as the idea.
 ## Day3(Oct 14,2022)
 Searched for the IEEE papers.
 ## Day4(Oct 15,2022)
+Discussions were made on topic selected
+## Day5(0ct 16)
 
 
 
